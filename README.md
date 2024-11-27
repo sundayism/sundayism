@@ -3,4 +3,5 @@ hey guys im ely and i like sunday 👨‍❤️‍💋‍👨
 
 
 
-![IMG_4837](https://github.com/user-attachments/assets/7e554bed-d2ae-49e5-9a6a-1d0b63ab0b0e)
+![ezgif-2-b748b116b4](https://github.com/user-attachments/assets/bf793641-816c-48b5-aba6-f7baf7f052e3)
+
