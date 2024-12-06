@@ -1,4 +1,4 @@
-hey guys im ely and i like sunday 👨‍❤️‍💋‍👨
+hi guys i am ely & i like sunday 👨‍❤️‍💋‍👨
 
 
 
