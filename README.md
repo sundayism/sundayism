@@ -8,4 +8,4 @@ hey guys im ely and i like sunday 👨‍❤️‍💋‍👨
 
 you might see me w/ differently tinted sunday ponies a lot don't mind that, 
 
-I like remaking him in different tints whenever I get bored
+I like remaking him in different tints whenever I get bored or 2 match the season
